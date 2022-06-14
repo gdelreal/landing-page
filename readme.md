@@ -1,0 +1,1 @@
+building a landing page using what I've learned thus far plus google for anything I don't remember. 
